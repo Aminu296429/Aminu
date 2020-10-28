@@ -1,0 +1,2 @@
+# Aminu
+Learning is fun
